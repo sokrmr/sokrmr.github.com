@@ -1,1 +1,0 @@
-# sokrmr.github.io
